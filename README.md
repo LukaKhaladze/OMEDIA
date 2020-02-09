@@ -1,1 +1,1 @@
-# Omedia
+# OMEDIA
